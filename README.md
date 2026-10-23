@@ -9,7 +9,7 @@
 ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1536675714940538890/tumblr_59e8269d2482750c2c7e5a6f025da23a_c7ebdb56_2048.png?ex=6a7c4448&is=6a7af2c8&hm=e512fb427d99662c9f8da85aea6db512742414b18620bb36d2a4a67d33f21469&)
 
 
-![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1536678106742657024/tumblr_ca01b4bde0808bf3584ef4cbb3dd0f76_6694e173_75.gif.webp?ex=6a7c4682&is=6a7af502&hm=23a9671bb461a5f9f8c83e3e1a233eddaedf40e6b219c2ae47e960e04f19c8e2&)**◟♯ . / BILLIE/TONI . | he/they | Demi-boy / Gay    ⸺     🌀 𓈒**
+![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1536678106742657024/tumblr_ca01b4bde0808bf3584ef4cbb3dd0f76_6694e173_75.gif.webp?ex=6a7c4682&is=6a7af502&hm=23a9671bb461a5f9f8c83e3e1a233eddaedf40e6b219c2ae47e960e04f19c8e2&)**◟♯ . / ANTONY/CAIN . | he/they | Demi-boy / Gay    ⸺     🌀 𓈒**
 
 ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1536678106436345897/tumblr_c77d64973d40819cfe2faea4f74bc244_ccf1dfb9_250.gif?ex=6a7c4682&is=6a7af502&hm=3a3136a0362200fd31660f8d2542061737b713660d7f5388d692e50be1bcf9e6&#left) ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1536678106197393498/tumblr_55a58bc24cde8ad275a89e63fe68a3ce_2121e5a0_250.gif?ex=6a7c4682&is=6a7af502&hm=6f897f7b8b0fa88dd11b270c1f63f92f5e23485da6a208ef32294f5332a54d02&#right) ![Alt Tag](https://cdn.discordapp.com/attachments/1525061299963297852/1536678106436345897/tumblr_c77d64973d40819cfe2faea4f74bc244_ccf1dfb9_250.gif?ex=6a7c4682&is=6a7af502&hm=3a3136a0362200fd31660f8d2542061737b713660d7f5388d692e50be1bcf9e6&#left)
 
@@ -20,7 +20,7 @@ BM . Eng . Indo
 
 ◟♯ . / INT GUIDE 　　₎₎
 
-. I'm quite shy but do approach me first if you want! . Unfortunately I don't accept gifts for some reason . I sometimes go AFK so feel free to whisp me or hit my ata/strawpage :)
+. I'm quite shy but do approach me first if you want! . Unfortunately I don't accept gifts for some reason . I sometimes go AFK so feel free to hit my ata/strawpage :)
 
 
 ◜　 ♡ॱ𓏽　　FANDOMS ₎₎
@@ -28,8 +28,9 @@ BM . Eng . Indo
 . INVC, Beatles, AHA, Queen, AND ONE, The Simpsons, Chiikawa, TADC, Metal Family, FNaF, HP, etc. [ can't remember sobs ]
 
 ◟♯ . / My arts ! ( more on tiktok ;) ) ₎₎
-<img width="2048" height="2048" alt="1000460045" src="https://github.com/user-attachments/assets/2d884d74-ab0c-4339-b1fc-c15c0ea98f14" />
-<img width="1806" height="1810" alt="1000461243" src="https://github.com/user-attachments/assets/041d3929-fe7f-4319-a3e6-46677ae95ab3" />
+<img width="1536" height="2048" alt="1000540003" src="https://github.com/user-attachments/assets/73ae5794-d910-4d80-994a-bde06995f92e" />
+<img width="1410" height="1435" alt="1000531005" src="https://github.com/user-attachments/assets/ec330e23-4ce1-44b2-a0dd-1584939760e9" />
+
 
 
 
